@@ -22,7 +22,7 @@
  
    ♡ 𝘈𝘣𝘰𝘶𝘵 𝘮𝘦 !
 
-   ꨄ I 𝘓𝘖𝘝𝘌 ASTRONOMY >> ⌞ 𝘮𝘺 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘪𝘴 𝘝𝘦𝘯𝘶𝘴, 𝘣𝘵𝘸 𝘩𝘪 𝘝𝘦𝘯𝘶𝘴 ( @confettihearts ) ^^ ⌝
+   ꨄ I 𝘓𝘖𝘝𝘌 ASTRONOMY >> ⌞ 𝘮𝘺 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘪𝘴 𝘝𝘦𝘯𝘶𝘴, 𝘣𝘵𝘸 𝘩𝘪 𝘝𝘦𝘯𝘶𝘴 ( @stickersheetz ) ^^ ⌝
    ꨄ Everyone knows I love my friends <3
    ꨄ I am a very heavy Yuri (spy x family ) and Uranus (solarballs) fictkin . . I'm literally Yuri guys      ,, („• ֊ •„)੭ { Literally , I'm Yuri . /gen }
    ꨄ most of my info is in my strawpage ! at the links ,,
