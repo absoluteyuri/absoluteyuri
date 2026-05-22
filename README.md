@@ -10,26 +10,34 @@
   ᡕᠵデᡁ᠊╾━ . 𝘋𝘕𝘐 𝘓𝘐𝘚𝘛
   dni if,,
 
-  → you genuinely joke about gambling, GENUINELY, seriously, dni . ՞߹ - ߹՞
-  → you say sexual jokes about me .
-  → you insult me like alot ?? 「 unless we're friends or it's obviously playful banter . 」
-  → you're just gonna be cold (¬_¬")
-  → you're just gonna copy my ponies / designs .
-  → you act weird ? "( – ⌓ – )
-  → you overly swear . gng you are not tuff (¬`‸´¬)
-  → you disturb me when I have DNI or DNT. like dude? (·•᷄∩•᷅ )
+  → you genuinely joke about gambling, GENUINELY, seriously, dni . ՞߹ - ߹՞            
+      → you say sexual jokes about me .        
+         → you insult me like alot ?? 「 unless we're friends or it's obviously playful banter . 」       
+      → you're just gonna be cold (¬_¬")      
+           → you're just gonna copy my ponies / designs . 
+                   → you act weird ? "( – ⌓ – )             
+            → you overly swear . gng you are not tuff (¬`‸´¬)
+                    → you disturb me when I have DNI or DNT. like dude? (·•᷄∩•᷅ )
 
  
    ♡ 𝘈𝘣𝘰𝘶𝘵 𝘮𝘦 !
 
-   ꨄ I 𝘓𝘖𝘝𝘌 ASTRONOMY >> ⌞ 𝘮𝘺 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘪𝘴 𝘝𝘦𝘯𝘶𝘴, 𝘣𝘵𝘸 𝘩𝘪 𝘝𝘦𝘯𝘶𝘴 ( @stickersheetz ) ^^ ⌝
-   ꨄ Everyone knows I love my friends <3
+  ꨄ I 𝘓𝘖𝘝𝘌 ASTRONOMY >> ⌞ 𝘮𝘺 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘪𝘴 𝘝𝘦𝘯𝘶𝘴, 𝘣𝘵𝘸 𝘩𝘪 𝘝𝘦𝘯𝘶𝘴 ( @stickersheetz ) ^^ ⌝
+  
+  ꨄ Everyone knows I love my friends <3
+  
    ꨄ I am a very heavy Yuri (spy x family ) and Uranus (solarballs) fictkin . . I'm literally Yuri guys      ,, („• ֊ •„)੭ { Literally , I'm Yuri . /gen }
+   
    ꨄ most of my info is in my strawpage ! at the links ,,
-   ꨄ I like Science ALOT ٩(ˊᗜˋ*)و
+   
+   ꨄ I like Science ALOT ٩(ˊᗜˋ*)
+   و
    ꨄ I like learning, usually !
-   ꨄ I hate gambling . it ruined my family and a sensitive topic for me (¬⤙¬ )
+   
+   ꨄ I hate gambling . it ruined my family and a sensitive topic for me (¬⤙¬ 
+   
    ꨄ I am really kind once you get to know me, just approach me properly (｡>﹏<)
+   
    ꨄ sometimes, I make really corny / weird jokes and I'm sorry in advance.. ( · ❛ ֊ ❛)
 
 
