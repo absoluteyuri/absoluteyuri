@@ -1,5 +1,6 @@
 
-<img width="500" height="499" alt="_ (1)" src="https://github.com/user-attachments/assets/b10f280a-ee52-4202-bcdd-d72a93e8c28f" />
+
+  <img width="500" height="499" alt="_ (1)" src="https://github.com/user-attachments/assets/b10f280a-ee52-4202-bcdd-d72a93e8c28f" />
 
 
 
@@ -58,6 +59,8 @@
    ꨄ I am really kind once you get to know me, just approach me properly (｡>﹏<)
    
    ꨄ sometimes, I make really corny / weird jokes and I'm sorry in advance.. ( · ❛ ֊ ❛)
+
+   <img width="176" height="173" alt="_" src="https://github.com/user-attachments/assets/7a961f48-ab0c-4012-8435-012f2124d9ef" />
 
 
    𓏵 That is all ! thank you for taking your sweet time to get to know me a bit more, I appreaciate your attention ! please sign my atabook and read my strawpage . Thank you, once again !
