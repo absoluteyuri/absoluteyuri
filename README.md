@@ -1,3 +1,4 @@
+
 <img width="736" height="670" alt="_ (1)" src="https://github.com/user-attachments/assets/b10f280a-ee52-4202-bcdd-d72a93e8c28f" />
 
 
@@ -19,10 +20,10 @@
  
  
  
-   ___________________________________________________________________________________________________
+   __________________________________________________________________________________________________
 
 
-  ᡕᠵデᡁ᠊╾━ . 𝘋𝘕𝘐 𝘓𝘐𝘚𝘛
+ ᡕᠵデᡁ᠊╾━ . 𝘋𝘕𝘐 𝘓𝘐𝘚𝘛   <img width="123" height="122" alt="𝐘𝗎𝗋𝗂 𝐁𝗋𝗂𝖺𝗋" src="https://github.com/user-attachments/assets/6d50f559-04e6-498e-91a8-04221723c957" />
   dni if,,
 
   → you genuinely joke about gambling, GENUINELY, seriously, dni . ՞߹ - ߹՞            
