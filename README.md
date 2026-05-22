@@ -63,7 +63,7 @@ you are 𝘭𝘰𝘷𝘦𝘥 . ᰔᩚ
   
   
   
-  
+  •ᴗ•
   
   
   
@@ -73,6 +73,10 @@ you are 𝘭𝘰𝘷𝘦𝘥 . ᰔᩚ
   
   "̶ ̶I̶ ̶s̶t̶i̶l̶l̶ ̶r̶e̶p̶e̶a̶t̶ ̶t̶h̶e̶ ̶t̶h̶i̶n̶g̶s̶ ̶y̶o̶u̶ ̶s̶a̶i̶d̶ ̶t̶o̶ ̶m̶e̶ ̶i̶n̶ ̶m̶y̶ ̶h̶e̶a̶d̶ ̶.̶ ̶"
 
+
+  
+  
+  
   <img width="736" height="670" alt="_ (1)" src="https://github.com/user-attachments/assets/b10f280a-ee52-4202-bcdd-d72a93e8c28f" />
 
     
