@@ -27,7 +27,7 @@
  ᡕᠵデᡁ᠊╾━ . 𝘋𝘕𝘐 𝘓𝘐𝘚𝘛  
   dni if,,
 
-  → you genuinely joke about gambling, GENUINELY, seriously, dni . ՞߹ - ߹՞            
+  → you joke about gambling, GENUINELY, seriously, dni . ՞߹ - ߹՞            
       → you say sexual jokes about me .        
          → you insult me like alot ?? 「 unless we're friends or it's obviously playful banter . 」       
       → you're just gonna be cold (¬_¬")      
