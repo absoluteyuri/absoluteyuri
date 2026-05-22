@@ -68,6 +68,9 @@
 you are 𝘭𝘰𝘷𝘦𝘥 . ᰔᩚ
 (っ˶ ˘ ᵕ˘)ˆᵕ ˆ˶ς)
 
+  
+   <img width="170" height="167" alt="𝐒𝐩𝐲 ⛌ 𝐅𝐚𝐦𝐢𝐥𝐲 📰𝔜𝔲𝔯𝔦 𝔅𝔯𝔦𝔞𝔯 𖣐☠🕵️☾𖤓☽=✪=✪⛉" src="https://github.com/user-attachments/assets/e56769b4-98a1-4a3f-9a7e-f13c8cec2c3a" />
+
   " 𝘐'𝘮 𝘴𝘤𝘢𝘳𝘦𝘥 𝘵𝘩𝘢𝘵 𝘵𝘩𝘪𝘴 𝘪𝘴 𝘢𝘭𝘭 𝘐'𝘭𝘭 𝘦𝘷𝘦𝘳 𝘣𝘦. "
 ⠀⠀⠀  
              " Nobody is coming to save you- 𝘨𝘦𝘵 𝘶𝘱 . "⠀⠀
